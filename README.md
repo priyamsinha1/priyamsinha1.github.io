@@ -1,2 +1,2 @@
-# priyamsinhaa.github.io
+# priyamsinha1.github.io
 Digital Portfolio 
